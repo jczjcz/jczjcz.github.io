@@ -1,288 +1,51 @@
-# <center>第七讲 <center>
-
-## 一、苏共二十大及波匈事件的冲击
-
- **时空适应性：苏联模式在苏联和东欧出现了一系列负面效应，引起人民的反对** 
-
-需要进行改革
-
-### 1.赫鲁晓夫的秘密报告 
-
-个人独断专权；战争准备不足；农业问题；民族政策；无故杀害民众
-
-#### 几个问题：
-
-**不是突然袭击**；对斯大林过于崇拜，不利于下一代领导人权威的树立；
-
-不是全盘否定斯大林；
-
-犯错原因：共产党环境
-
-> 最初后果：
->
-> 迅速在世界流传
->
-> 毛泽东认为赫鲁晓夫对斯大林揭了盖子、捅了篓子 
-
-<u>在过去历史上，在现在一切的资本主义国家中，没有任何一个为剥削阶级服务的当权政党或者政治集团敢于在自己的党员群众面前，在人民群众面前，认真地揭露自己的严重错误。工人阶级的政党就完全是另外一回事。工人阶级的政党是为广大人民群众服务的政党，对于它们说来，实行自我批评，除了失掉错误以外，什么都不会失掉，而所得到的却是广大人民群众的拥护。</u>
-
-#### 新方针改革
-
-经济：发展轻工业和农业
-
-政治：平反大量冤假错案
-
-外交：全方位的缓和方针
-
-2.赫鲁晓夫改革 
-
-农业： 
-
--大幅度减少农业税 
-
--发动大规模的垦荒运动 
-
--脱离实际地提出超越英美 
-
--把失败推给基层 
-
-工业、外交、政治 
-
- 
-
-※经济改革的成败 
-
-积极方面：去掉了斯大林模式中一些明显错误的成分；在改善民生方面有一定成效；冲击了被视为权威的神圣的斯大林模式，开启了苏联社会主义改革的闸门，具有探索性和开创性 
-
-消极方面：对斯大林模式缺乏科学的认识，始终是在旧的框架内进行修改，未能根本上突破 
-
- 
-
-### 2.波匈事件 
-
-（1）波匈事件的根源 
-
-东欧国家出现了试图改革苏联模式的尝试 
-
-1956年苏共二十大赫鲁晓夫的秘密报告在全世界引起震动，在东欧更是引起了轩然大波，要求改革政治经济体制的呼声迸发出来。 
-
-（2）波兹南事件 
-
-（3）匈牙利事件 
-
-苏联没有干涉波兰，却干涉了匈牙利 
-
-毛泽东从赫鲁晓夫报告和波匈事件中反思到了什么？ 
-
-反右；不能再和苏联协调一致了。
-
-<img src="https://tva1.sinaimg.cn/large/0081Kckwly1gl9gibztkqj315e0mo77i.jpg" style="zoom:50%;" />
-
-对苏联模式的小修小补，没有触动核心。
-
-**百姓对苏联模式丧失信心**
-
-### 3.1957年莫斯科会议
-
-毛泽东公开在理论上挑战苏联的权威 
-
-整顿朱可夫元帅
-
-#### 毛泽东对赫鲁晓夫报告和波匈事件中的反思：
-
-避免改革$\longrightarrow$**左倾**
-
-## 二、中国社会的左倾
-
-> 知识分子皮毛论：中间派
-
-1956年底中国领导人对波匈事件的教训总结
-
-### （1）从整风到反右派的转变
-
-A. 毛泽东的知识分子政策
-
-B. 知识分子的自我认知
-
-> 爱国主义；相信自我改造
-
-C. 知识分子的自我改造
-
-D. 中共对知识分子的改造
-
-E. 中共对知识分子政策的调整和波匈事件的冲击
-
-> 知识分子改造：第一，是很多知识分子有怨气；第二，很多知识分子相信党，愿意为社会主义建设贡献自己力量。因此，当整风运动开始后，很多知识分子直接表达了对社会主义建设中存在问题的不满，说出了自己的社会主义理想。但是，这在毛泽东看来是资产阶级的思想作怪。
-
-（1）刘少奇、周恩来 
-
-刘少奇 
-
-第一，防止党和国家的领导机关及各级领导人脱离工农劳动群众，形成新的贵族阶级。必须对权力有所限制；国家领导人生活水平应该接近人民的生活水平，不要过分悬殊；经济建设速度宁可慢一点，稳当一点 
-
-周恩来 
-
-在中国，对周围兄弟国家也有个别大国主义的做法，对兄弟民族也还是有大汉族主义的倾向，也产生过领导脱离群众，不关心群众利益的事情。封建官僚的习俗在社会上还是存在的；民主不够，需要大民主 
-
-（2）民主派 
-
-苏联政治模式问题 
-
-（3）毛泽东 
-
-斯大林、列宁这两把刀子已经差不多丢掉了；波匈事件的教训就是：不依靠群众进行阶级斗争，不分清敌我，这很危险。与刘少奇单纯批评大民主的做法不同，毛泽东在这里把无产阶级大民主作为反对官僚主义的一个重要手段，准备加以利用。 
-
- 
-
-二、
-
-1957年4月27日，中央正式发出《关于整风运动的指示》，在全党进行一次普遍、深入的反对官僚主义、宗派主义和主观主义的整风运动 
-
-5月中旬，毛泽东写出“情况正在起变化”，后来又在6月8日发表《这是为什么？》的社论，一场全国规模的群众性的疾风暴雨式的反右派运动猛烈地开始了。 
-
-据统计，在1956年初10万高级知识分子中，党外知识分子占93%，建国后增加的人数约占35%，其中不少是海外归来者。 
-
-A.毛泽东的知识分子政策 
-
-理论：毛从来不认为知识分子是社会主体的一部分，他的著名的皮毛论就是非常典型的说法，在毛泽东看来，知识分子只有通过思想和感情上的痛苦转变，实现与工农相结合，才能对中国革命有所贡献。 
-
-现实：人才缺乏 
-
-B.知识分子的自我认识 
-
-①爱国主义 
-
-②相信自我改造 
-
-C.知识分子的自我改造 
-
-D.中共对知识分子的改造 
-
-按照中共中央的规定，反革命分子一般控制在5%左右，这在运动中实际上成了各部门、各地区必须达到的最低目标。 
-
-这种改造，第一，使很多知识分子有怨气；第二，很多知识分子相信党，愿意为社会主义建设贡献自己的力量。因此，在整风运动开始之后，很多知识分子直接表达了对社会主义建设中存在问题的不满，说出了自己的社会主义理想。但是，这在毛泽东看来是资产阶级思想在作怪 
-
-E.1956年后“引蛇出洞” 
-
-F.“反右”的过程 
-
-G.反右的后果和影响 
-
-一大批知识分子被错划，知识分子从士可杀不可辱，到既可杀又可辱 
-
-原因：第一，传统的“道统”地位的丧失——领导人掌握真理 
-
-​      第二，学而优则仕 
-
-​      第三，物质主义 
-
-**改变了八大一次会议关于对我国社会主要矛盾的跑断，认为两个阶级和两条道路的斗争是主要矛盾** 
-
-将不少小党人士判定为右派分子，自此之后，各小党成员锐减，其活动亦几进停顿 
-
-
-
-### （2）大跃进和人民公社运动
-
-\1. 背景 
-
-①土改和社会主义改造，提前完成第一个五年计划，全国经济形势较好 
-
-②以群众运动方式进行大跃进 
-
-③反右派斗争刚刚结束，社会上噤若寒蝉，盲从附和现象风气弥漫 
-
-④1956年后中苏关系逐渐恶化，毛泽东推出一套自力更生的经济计划，走一条与苏联模式截然不同的工业化道路 
-
-⑤中国自朝鲜战争后长期受西方孤立，也急于赶超英美 
-
-2.人民公社 
-
-大——规模大，没社平均有5000农户，下设生产大队和生产队 
-
-公——公有程度高，农民的全部土地、屋基、牲畜、果木都属于公社 
-
-公社采用分配供给制，设立公共食堂。实行吃饭不要钱，又负担社员部分生活所需 
-
- 
-
-公社是经济生产组织，又是基层政权机构，成了社会基本单位 
-
-城镇地区也出现了许多公社，公社成为中共管治基层人民的武器。到1958年10月99%的农户都参与了人民公社 
-
- 
-
-结果：从大跃进到大饥荒 
-
-毛泽东提出过高的生产指标，地方干部虚报成果 
-
-农业：粮荒；工业；政治:对领袖盲目崇拜 
-
-
-
-### （3）纠正“左倾”错误的努力
-
-
-
-1)1958年秋冬之间，党中央开始发现“大跃进” 和人民公社化运动中出了乱子。11月由毛泽东提议并 主持了郑州会议，为纠“左”进行了初步努力。
-
-2)1959年7月2日至8月1日的庐山会议上彭德怀和 张闻天等一批同志受到错误批判。彭德怀同志的一封 信和张闻天的发言如实反映“大跃进”以来发生的严 重问题和进行的分析。
-
-3)60年开始，党中央作出整风整社，肃清五风:“共产”风、浮夸风、强 迫命令风、生产瞎指挥风和干部特殊化风。
-
-4)1962年1月11日至2月7日，中共中央在北京召开扩大的中央工作会议。 参加会议的有县委以上的各级党委主要负责人7000人，因此这次大会又称 “七千人大会”。
-
-
-
-在1月30日的大会上，毛泽东作了重要讲话，突出强调和系统阐述了实行民主集中制和在党内、党外发扬民主的问题。会议遂开成了民主的、批评和自我批评的大会。与会者对各省委、各中央局和中央国家机关提出了批评意见。各地区、各部门的负责人作了自我批评。中央主要领导人在发言中对党的工作、作风方面存在的缺点、错误提出了批评，并主动承担了自己 应负的责任。
-
-> 大跃进结束，刘少奇主持重要日常工作;毛泽东退居“二线”。 有人认为，这为1966年的文化大革命埋下伏笔。
-
-
-
-#### 刘少奇的做法：
-
-+ 刘少奇等采用“三自一包”的手段，变相解散人民公社。
-
-+ 刘少奇认为大饥荒的造成是“三分天灾，七分人祸”，使毛泽东难以接受，时刻希望重夺领导权，埋下日后文革的伏线。
-
-
-
-#### 中苏在大跃进、人民公社问题上的分歧
-
->  （1）热烈支持  $\longrightarrow$（2）谨慎反对  $\longrightarrow$  （3）公开批评	$\longrightarrow$	（4）中方的容忍  $\longrightarrow$	（5）中方的反击
-
- 1. 中苏在联合舰队和长波电台问题上的分歧
-
-    
-
-
-
-
-
-
-
- 
-
-### （4）纠正“右倾”错误的努力 
-
-1959年以彭德怀、张闻天为首的一批同志指出大跃进以来发生的严重问题 
-
- 
-
-大跃进结束，刘少奇主持重要日常工作；毛泽东退居二线 
-
-刘少奇采用三自一包（自负盈亏、自由市场、自留地和包产到户），变相解散人民公社 
-
-刘少奇认为大饥荒的造成是三分天灾，七分人祸，使毛泽东难以接受 
-
-
-
-
-
-
-
-
-
-
-
+## Hello GitHub Fans 👋
+[![博客搭建交流群](https://img.shields.io/badge/博客搭建QQ群-422625065-red.svg "博客搭建交流群")](https://jq.qq.com/?_wv=1027&k=58Ypj9z "博客搭建交流群")
+[![webkettle交流群](https://img.shields.io/badge/webkettle交流群-487063343-red.svg "webkettle交流群")](https://jq.qq.com/?_wv=1027&k=55kiWBY "webkettle交流群")
+[![Mail Badge](https://img.shields.io/badge/-joeysiwei@gmail.com-c14438?style=flat&logo=Gmail&logoColor=white&link=mailto:joeysiwei@gmail.com)](mailto:joeysiwei@gmail.com)
+---
+<img align="right" alt="GIF" src="https://raw.githubusercontent.com/JoeyBling/JoeyBling/master/pic/pusheencode.gif" />
+
+### I'm Qian Song
+
+- A Computer Engineering Undergraduate Student. & Open Source enthusiast.
+- 🌱 Currently working in Hangzhou, China.
+- 💬 Ask me about Java, TypeScript and my projects on [2434387555@qq.com](mailto:2434387555@qq.com)
+- ⭐ You may like [webkettle](https://github.com/JoeyBling/webkettle) 、[hexo-theme-yilia-plus](https://github.com/JoeyBling/hexo-theme-yilia-plus) 、or [bootplus](https://github.com/JoeyBling/bootplus)
+- ⚡ Fun fact: Data Analysis📊
+
+### 🛠 技术栈 | Tech Stack
+
+- 💻 &#160; ![Java](https://img.shields.io/badge/-Java-333333?style=flat&logo=Java&logoColor=007396)
+![Linux](https://img.shields.io/badge/-Linux-333333?style=flat&logo=Linux&logoColor=FCC624)
+![聚合支付](https://img.shields.io/badge/-聚合支付-333333?style=flat&logo=payoneer&logoColor=FF4800)
+- 🌐 &#160; ![HTML5](https://img.shields.io/badge/-HTML5-333333?style=flat&logo=HTML5)
+![Bootstrap](https://img.shields.io/badge/-Bootstrap-333333?style=flat&logo=bootstrap&logoColor=563D7C)
+![Node.js](https://img.shields.io/badge/-Node.js-333333?style=flat&logo=node.js)
+![Vue.js](https://img.shields.io/badge/-VueJS-333333?style=flat&logo=Vue.js)
+- 🛢 &#160; ![MySQL](https://img.shields.io/badge/-MySQL-333333?style=flat&logo=mysql)
+![MongoDB](https://img.shields.io/badge/-MongoDB-333333?style=flat&logo=mongodb)
+![Oracle](https://img.shields.io/badge/-Oracle-333333?style=flat&logo=Oracle)
+- 🔧 &#160;![Git](https://img.shields.io/badge/-Git-333333?style=flat&logo=git)
+![GitHub](https://img.shields.io/badge/-GitHub-333333?style=flat&logo=github)
+![Markdown](https://img.shields.io/badge/-Markdown-333333?style=flat&logo=markdown)
+
+### 开源项目
+- [基于SpringBoot + Shiro + MyBatisPlus的权限管理框架](https://github.com/JoeyBling/bootplus)
+- [一个简洁优雅的hexo主题](https://github.com/JoeyBling/hexo-theme-yilia-plus)
+- [hexo-theme-yilia-plus配置Demo](https://github.com/JoeyBling/yilia-plus-demo)
+- [自动为hexo中的图片映射绝对路径](https://github.com/JoeyBling/hexo-filter-image)
+- [✏️✏️Java软件工程师简历](https://github.com/JoeyBling/cv)
+- [一款简洁优雅的VuePress主题](https://github.com/JoeyBling/vuepress-theme-yilia-plus)
+- [VuePress集成Live2D看板娘](https://github.com/JoeyBling/vuepress-plugin-helper-live2d)
+- [VuePress集成Gitalk](https://github.com/JoeyBling/vuepress-plugin-mygitalk)
+- [不蒜子访问量统计功能](https://github.com/JoeyBling/busuanzi.pure.js)
+- [在`npm install`后提示用户消息或捐赠](https://github.com/JoeyBling/openteam-postinstall)
+
+### 关于我
+- [技术笔记](https://zhousiwei.gitee.io/ibooks/)
+- [CSDN](https://zhousiwei.blog.csdn.net/)
+- [微博](http://weibo.com/jayinfo)
+
+> ***I love to make friends. so if you want to say hi, I'll be happy to meet you more!😊***
+
+⭐️ From [JoeyBling](https://github.com/JoeyBling)
