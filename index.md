@@ -8,7 +8,7 @@
 [![webkettle交流群](https://img.shields.io/badge/webkettle交流群-487063343-red.svg "webkettle交流群")](https://jq.qq.com/?_wv=1027&k=55kiWBY "webkettle交流群")
 [![Mail Badge](https://img.shields.io/badge/-joeysiwei@gmail.com-c14438?style=flat&logo=Gmail&logoColor=white&link=mailto:joeysiwei@gmail.com)](mailto:joeysiwei@gmail.com)
 ---
-<img src="https://tva1.sinaimg.cn/large/0081Kckwly1gln9kdgkkgj30sq0w0b29.jpg" align="right" style="zoom:30%;" />
+<img src="https://tva1.sinaimg.cn/large/0081Kckwly1gln9nc6vxdj30h80j6qjv.jpg" align="right" style="zoom:50%;" />
 
 ### I'm 宋茜
 
